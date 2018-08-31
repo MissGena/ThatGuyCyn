@@ -1,2 +1,2 @@
 # ThatGuyCyn
-First timer
+Georgena Clay
